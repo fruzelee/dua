@@ -144,4 +144,5 @@ By chanting Sall-Allaahu ‘alayhi wa sallam 50 times in one minute, we can send
 (O Allah indeed I ask of You for Your Virtue (Bounty) and Your Mercy, for indeed, no one possesses
 these except You.’)
 
-[ref](https://youtu.be/CDIiqxvxWII)
+[ref-1](https://youtu.be/CDIiqxvxWII)
+[ref-2](https://islamtheultimatepeace.com/top-10-dua-zikr-to-recite-everyday/)
