@@ -56,6 +56,29 @@ We can recite Laa ilaaha ill-Allaah wahdahu laa shareeka lah, lahu’l-mulk wa l
 
 “Whoever says Laa ilaaha ill-Allaah wahdahu laa shareeka lah, Laa ilaaha ill-Allaah wahdahu laa shareeka lah, Laa ilaaha ill-Allaah wahdahu laa shareeka lah, Laa ilaaha ill-Allaah wahdahu laa shareeka Except for those who do more, no one can do anything better than what he has done. “Whoever says Subhaan Allaah wa bi hamdihi (Allaah be glorified and praise be to Him) one hundred times in a day will have his sins wiped, even if they are as small as the foam of the sea.” Al-Bukhaari and Muslim tell the storey.
 
+# 4) Subhaan Allaah wa bi hamdihi Subhaan Allaah il-‘Azeem Subhaan Allaah wa bi hamdihi Subhaan Allaah il-‘Azeem
+
+# <div align="center">**سُبْحَانَ اللَّهِ وَبِحَمْدِهِ**</div>
+
+# <div align="center">**سُبْحَانَ اللَّهِ الْعَظِيمِ**</div>
+
+Subhaan Allaahi wa bi hamdihi Subhaan Allaah il-‘Azeem (Glory and praise be to Allaah, glory be to Allaah the Almighty) can be recited 50 times in one minute. According to al-Bukhaari and Muslim, they are two statements that are light on the tongue, heavy in the balance, and beloved of the Most Merciful.
+
+“Shall I tell you the expression that Allah loves the most?” the Messenger of Allah (PBUH) said to Abu Dharr (May Allah be pleased with him). It is ‘Subhan-Allahi wa bihamdihi’ (Allah is without flaws, and praise is due to Him)’.” [Muslim].
+
+The Messenger of Allah (PBUH) said, “There are two phrases that are light for the tongue to recall, weighty in the Scales, and sweet to the Merciful: Subhan-Allahi wa bihamdihi, Subhan-Allahil-Azhim, Subhan-Allahi wa bihamdihi, Subhan-Allahi wa bihamdihi, Subhan-Allahi wa bihamdihi, Subhan [All glory and honour is due to Allah, and Allah, the Greatest, is without flaws)’.” [According to Al-Bukhari and Muslim].
+
+“For him who says: Subhan-Allahi wa bi hamdihi (Allah is free from imperfection, and I begin by thanking Him, and to Him),” a palm-tree will be planted in Jannah, according to Jabir (May Allah be pleased with him).
+[At-Tirmidhi].
+
+“He who recites the statement: Subhan-Allahi wa bihamdihi (Allah is free from imperfection and I begin by praising Him) one hundred times in the morning and evening, will not be surpassed on the Day of Resurrection by anyone with better deeds than one who utters the same words or utters more of them,” according to Abu Hurairah (May Allah be pleased with him).
+[Muslim].
+
+Abu Huraira narrated: “Whoever says, ‘Subhan Allah wa bihamdihi,’ one hundred times a day will be forgiven all his sins, even if they are as great as the foam of the sea,” Allah’s Apostle declared. (Hadith #414, Book #75)
+
+
+
+
 ### SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
 
 # <div align="center">**اللَّهُمَّ إنِّي أَسْأَلُك مِنْ فَضْلِكَ وَرَحْمَتِكَ، فَإِنَّهُ لاَ يَمْلِكُهَا إِلاَّ أَنْتَ**</div>
