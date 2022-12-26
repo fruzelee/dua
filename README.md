@@ -127,9 +127,15 @@ Subhaan Allaah wa bi hamdih, ‘adada khalqihi, wa ridaa nafsihi, wazinata ‘ar
 
 We can seek Allaah’s pardon more than 100 times in one minute by saying “Astaghfir-Allaah” (I seek the forgiveness of Allaah). The benefits of seeking forgiveness are well known, as it is a means of receiving forgiveness and joining Paradise, as well as improving one’s strength, warding off disasters, making things easier, bringing rain, and increasing one’s wealth and offspring.
 
+# 10) Pray for the Prophet’s well-being (peace and blessings of Allaah be upon him)
+
+# <div align="center">**اللَّهُمَّ صَلِّ عَلَى مُحَمَّدٍ، وَعَلَى آلِ مُحَمَّدٍ، كَمَا صَلَّيْتَ عَلَى آلِ إِبْرَاهِيمَ، إِنَّكَ حَمِيدٌ مَجِيدٌ، اللَّهُمَّ بَارِكْ عَلَى مُحَمَّدٍ، وَعَلَى آلِ مُحَمَّدٍ، كَمَا بَارَكْتَ عَلَى آلِ إِبْرَاهِيمَ، إِنَّكَ حَمِيدٌ مَجِيدٌ**</div>
+
+By chanting Sall-Allaahu ‘alayhi wa sallam 50 times in one minute, we can send blessings on the Prophet (peace and blessings of Allaah be upon him) (May Allaah bless him and grant him peace). In exchange, Allaah will shower you with blessings 500 hundred times over, for one blessing brings ten more.
+
 # <div align="center">****</div>
 
-### SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
+# 11) SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
 
 # <div align="center">**اللَّهُمَّ إنِّي أَسْأَلُك مِنْ فَضْلِكَ وَرَحْمَتِكَ، فَإِنَّهُ لاَ يَمْلِكُهَا إِلاَّ أَنْتَ**</div>
 
