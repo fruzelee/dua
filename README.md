@@ -39,6 +39,15 @@ Except for Allaah, there is neither capability nor power.
 A thousand good deeds are recorded for him or a thousand negative deeds are wiped away for everyone who recites [the above] one hundred times.
 [Muslim]
 
+# 2)La illaha illallah Muhammadur Rasulullah (There is no God but Allah)
+
+# <div align="center">**لا إله إلا الله محمد رسول الله**</div>
+
+If we recite this dua one hundred times a day, we shall be rewarded with the release of ten slaves, the writing of 100 good actions, and the eradication of 100 bad deeds, and Satan will not attack us that day.
+
+We can pronounce Laa ilaaha illa Allaah about 50 times in a minute. This is the most important word, since it is Tawheed, the excellent word, the word that endures. If they are a person’s last words, he will enter Paradise, and other tales illustrate how powerful these words are.
+An La ilaha illallah, Li kulli shay’in miftahun wa miftahu al-jannati shahadatu. “Everything has a key, and witnessing that there is no deity but Allah is the key to Paradise.” Muqal ibn Yasar is narrated by Tabarani. According to one of the chapter titles in Bukhari’s Sahih, Wahb affirmed its veracity.
+
 ### SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
 
 # <div align="center">**اللَّهُمَّ إنِّي أَسْأَلُك مِنْ فَضْلِكَ وَرَحْمَتِكَ، فَإِنَّهُ لاَ يَمْلِكُهَا إِلاَّ أَنْتَ**</div>
