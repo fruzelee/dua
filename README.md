@@ -111,7 +111,17 @@ Allahuakbar
 
 On the Day of Judgment, no one will be able to bring more good acts than whoever reads Allahuakbar 100 times in the morning and 100 times in the evening, except the one who has read more.
 
+# 8) Subhaan Allaah wa bi hamdih, ‘adada khalqihi, wa ridaa nafsihi, wazinata ‘arshihi, wa midaada kalimaatihi, wamidaada kalimaatihi, wamidaada kalimaatihi, wamidaada kalimaatihi,
 
+# <div align="center">**سُبْحَانَ اللَّهِ وَبِحَمْدِهِ**</div>
+# <div align="center">**عَدَدَ خَلْقِهِ**</div>
+# <div align="center">**رِضَا نَفْسِهِ**</div>
+# <div align="center">**وَزِنَةَ عَرْشِهِ**</div>
+# <div align="center">**وَ مِدَادَ كَلِمَاتِهِ**</div>
+
+Subhaan Allaah wa bi hamdih, ‘adada khalqihi, wa ridaa nafsihi, wazinata ‘arshihi, wa midaada kalimaatihi (Glory and praise be to Allaah, as much as the number of His creation, as much as what pleases Him, as much as the weight of His Throne, and as much as the ink of As recorded in saheeh ahaadeeth from the Prophet, these words bring several times the reward for other forms of tasbeeh and dhikr (peace and blessings of Allaah be upon him).
+
+# <div align="center">****</div>
 
 ### SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
 
