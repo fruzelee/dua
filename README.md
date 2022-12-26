@@ -2,7 +2,15 @@
 
 ### SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
 
-<div class="myDiv" align="center" style="">
+<style>
+.myDiv {
+  border: 5px outset red;
+  background-color: lightblue;
+  text-align: center;
+}
+</style>
+
+<div class="myDiv" align="center">
 <font color="red">
   <h2>**اللَّهُمَّ إنِّي أَسْأَلُك مِنْ فَضْلِكَ وَرَحْمَتِكَ، فَإِنَّهُ لاَ يَمْلِكُهَا إِلاَّ أَنْتَ**</h2>
 </font>
