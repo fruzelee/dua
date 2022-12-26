@@ -88,6 +88,31 @@ Abu Huraira narrated: “Whoever says, ‘Subhan Allah wa bihamdihi,’ one hund
 
 We can chant Laa hawla wa laa quwwata illa Billaah (There is no strength and no power except with Allaah) around 40 times in one minute. According to al-Bukhaari and Muslim, this is one of the treasures of Paradise. They are a means of persevering in the face of adversity and striving for greatness.
 
+# 7) SubhanAlaah,Alhumdulillah,Allahuakbar
+
+After each salah/namaj, we read this 33 times each.
+
+Subhanallah
+
+# <div align="center">**سُبْحَانَ اللَّهِ**</div>
+
+The Prophet (SAW) said that whomever reads Subhanallah 100 times in the morning and 100 times in the evening will be rewarded in the same way as someone who performs 100 Hajj.
+
+Alhamdulillah
+
+# <div align="center">**الْحَمْدُ لِلَّهِ**</div>
+
+The Prophet (SAW) declared that reading Alhamdulillah 100 times is equivalent to participating in 100 Jihads.
+Jame Tirmizi (Jame Tirmizi)
+
+Allahuakbar
+
+# <div align="center">**اللَّهُ أَكْبَرُ**</div>
+
+On the Day of Judgment, no one will be able to bring more good acts than whoever reads Allahuakbar 100 times in the morning and 100 times in the evening, except the one who has read more.
+
+
+
 ### SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
 
 # <div align="center">**اللَّهُمَّ إنِّي أَسْأَلُك مِنْ فَضْلِكَ وَرَحْمَتِكَ، فَإِنَّهُ لاَ يَمْلِكُهَا إِلاَّ أَنْتَ**</div>
