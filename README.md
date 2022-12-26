@@ -2,7 +2,7 @@
 
 # SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
 
-للَّهُمَّ إنِّي أَسْأَلُك مِنْ فَضْلِكَ وَرَحْمَتِكَ، فَإِنَّهُ لاَ يَمْلِكُهَا إِلاَّ أَنْتَ
+#للَّهُمَّ إنِّي أَسْأَلُك مِنْ فَضْلِكَ وَرَحْمَتِكَ، فَإِنَّهُ لاَ يَمْلِكُهَا إِلاَّ أَنْتَ 
 
 Allahumma innee as’aluka min fadlika wa rahmatika, fa-innahu laa yam-liku-ha illaa ant
 
