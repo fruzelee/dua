@@ -28,6 +28,16 @@ Transliteration: laa hawla wa laa quwwata Illaa billaah
 
 Except for Allaah, there is neither capability nor power.
 
+![img.png](img.png)
+Daily Dhikr
+
+# 1)Allah be pleased with you (Glory be to Allah)
+
+# <div align="center">**سبحان الله**</div>
+
+A thousand good deeds are recorded for him or a thousand negative deeds are wiped away for everyone who recites [the above] one hundred times.
+[Muslim]
+
 ### SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
 
 # <div align="center">**اللَّهُمَّ إنِّي أَسْأَلُك مِنْ فَضْلِكَ وَرَحْمَتِكَ، فَإِنَّهُ لاَ يَمْلِكُهَا إِلاَّ أَنْتَ**</div>
