@@ -1,2 +1,1 @@
-# dua
-dua-collection
+# dua collection
