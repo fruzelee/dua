@@ -76,7 +76,11 @@ The Messenger of Allah (PBUH) said, “There are two phrases that are light for 
 
 Abu Huraira narrated: “Whoever says, ‘Subhan Allah wa bihamdihi,’ one hundred times a day will be forgiven all his sins, even if they are as great as the foam of the sea,” Allah’s Apostle declared. (Hadith #414, Book #75)
 
+# 5) Subhaan Allaah, wa’l-hamdu Lillah, wa laa ilaah ill-Allaah, wa Allaahu akbar
 
+# <div align="center">**,سُبْحَانَ اللَّهِ وَالْحَمْدُ لِلَّهِ وَلاَ إِلَهَ إِلاَّ اللَّهُ وَاللَّهُ أَكْبَرُ**</div>
+
+“When I say ‘Subhaan Allaah, wa’l-hamdu Lillah, wa laa ilaah ill-Allaah, wa Allaahu akbar (Glory be to Allaah, praise be to Allaah, there is no god save Allaah, and Allaah is Most Great), this is more beloved to me than all that the sun rises upon,” the Prophet (peace and blessings of Alla (Muslim tells the storey.) We can pronounce all of these words more than 18 times in one minute. These are Allaah’s favourite words, the best of words, and they count heavily in the balance of good acts, as the saheeh ahaadeeth narrated.
 
 
 ### SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
