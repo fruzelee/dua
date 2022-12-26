@@ -32,14 +32,14 @@ Except for Allaah, there is neither capability nor power.
 
 # <div align="center">*Daily Dhikr*</div>
 
-# 1)Allah be pleased with you (Glory be to Allah)
+# 1) Allah be pleased with you (Glory be to Allah)
 
 # <div align="center">**سبحان الله**</div>
 
 A thousand good deeds are recorded for him or a thousand negative deeds are wiped away for everyone who recites [the above] one hundred times.
 [Muslim]
 
-# 2)La illaha illallah Muhammadur Rasulullah (There is no God but Allah)
+# 2) La illaha illallah Muhammadur Rasulullah (There is no God but Allah)
 
 # <div align="center">**لا إله إلا الله محمد رسول الله**</div>
 
@@ -47,6 +47,14 @@ If we recite this dua one hundred times a day, we shall be rewarded with the rel
 
 We can pronounce Laa ilaaha illa Allaah about 50 times in a minute. This is the most important word, since it is Tawheed, the excellent word, the word that endures. If they are a person’s last words, he will enter Paradise, and other tales illustrate how powerful these words are.
 An La ilaha illallah, Li kulli shay’in miftahun wa miftahu al-jannati shahadatu. “Everything has a key, and witnessing that there is no deity but Allah is the key to Paradise.” Muqal ibn Yasar is narrated by Tabarani. According to one of the chapter titles in Bukhari’s Sahih, Wahb affirmed its veracity.
+
+# 3) Laa ilaaha ill-Allaah wahdahu laa shareeka lah, lahu’l-mulk wa lahu’l-hamd wa huwa ‘ala kulli shay’in qadeer, lahu’l-mulk wa lahu’l-hamd wa huwa ‘ala kulli shay’in qadeer
+
+# <div align="center">**لاَ إِلَهَ إِلاَّ اللَّهُ وَحْدَهُ لاَ شَرِيكَ لَهُ لَهُ الْمُلْكُ وَلَهُ الْحَمْدُ يحي و يميت وَهُوَ عَلَى كُلِّ شَيْءٍ قَدِيرٌ**</div>
+
+We can recite Laa ilaaha ill-Allaah wahdahu laa shareeka lah, lahu’l-mulk wa lahu’l-hamd wa huwa ‘ala kulli shay’in qadeer – 20 times in one minute.
+
+“Whoever says Laa ilaaha ill-Allaah wahdahu laa shareeka lah, Laa ilaaha ill-Allaah wahdahu laa shareeka lah, Laa ilaaha ill-Allaah wahdahu laa shareeka lah, Laa ilaaha ill-Allaah wahdahu laa shareeka Except for those who do more, no one can do anything better than what he has done. “Whoever says Subhaan Allaah wa bi hamdihi (Allaah be glorified and praise be to Him) one hundred times in a day will have his sins wiped, even if they are as small as the foam of the sea.” Al-Bukhaari and Muslim tell the storey.
 
 ### SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
 
