@@ -82,6 +82,11 @@ Abu Huraira narrated: “Whoever says, ‘Subhan Allah wa bihamdihi,’ one hund
 
 “When I say ‘Subhaan Allaah, wa’l-hamdu Lillah, wa laa ilaah ill-Allaah, wa Allaahu akbar (Glory be to Allaah, praise be to Allaah, there is no god save Allaah, and Allaah is Most Great), this is more beloved to me than all that the sun rises upon,” the Prophet (peace and blessings of Alla (Muslim tells the storey.) We can pronounce all of these words more than 18 times in one minute. These are Allaah’s favourite words, the best of words, and they count heavily in the balance of good acts, as the saheeh ahaadeeth narrated.
 
+# 6)Laa hawla wa laa quwwata illa Billaah
+
+# <div align="center">**لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهُِ**</div>
+
+We can chant Laa hawla wa laa quwwata illa Billaah (There is no strength and no power except with Allaah) around 40 times in one minute. According to al-Bukhaari and Muslim, this is one of the treasures of Paradise. They are a means of persevering in the face of adversity and striving for greatness.
 
 ### SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
 
