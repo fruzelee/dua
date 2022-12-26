@@ -121,6 +121,12 @@ On the Day of Judgment, no one will be able to bring more good acts than whoever
 
 Subhaan Allaah wa bi hamdih, ‘adada khalqihi, wa ridaa nafsihi, wazinata ‘arshihi, wa midaada kalimaatihi (Glory and praise be to Allaah, as much as the number of His creation, as much as what pleases Him, as much as the weight of His Throne, and as much as the ink of As recorded in saheeh ahaadeeth from the Prophet, these words bring several times the reward for other forms of tasbeeh and dhikr (peace and blessings of Allaah be upon him).
 
+# 9) Astaghfir-Allaah
+
+# <div align="center">**أَسْتَغْفِرُ اللّٰهَ**</div>
+
+We can seek Allaah’s pardon more than 100 times in one minute by saying “Astaghfir-Allaah” (I seek the forgiveness of Allaah). The benefits of seeking forgiveness are well known, as it is a means of receiving forgiveness and joining Paradise, as well as improving one’s strength, warding off disasters, making things easier, bringing rain, and increasing one’s wealth and offspring.
+
 # <div align="center">****</div>
 
 ### SAY THIS DUA, ALLAH GIVES YOU RIZQ FAST
